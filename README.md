@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @e13cTr0n1c5
-- 👀 I’m interested in software and women
+- 👀 I’m interested in software 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 Snap me on @arthurjone5
